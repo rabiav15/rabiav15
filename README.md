@@ -3,7 +3,7 @@
 
 - 📄 Know about my resume [https://drive.google.com/file/d/1pwOeUZFt83gRuVj1Bv4UgxuYUmyujQAP/view?usp=drive_link](https://drive.google.com/file/d/1pwOeUZFt83gRuVj1Bv4UgxuYUmyujQAP/view?usp=drive_link)
 - 🌱 Check About My Bagdes [https://www.credly.com/users/rabia-varol/badges/credly]
-- (https://www.credly.com/users/rabia-varol/badges/credly)
+(https://www.credly.com/users/rabia-varol/badges/credly)
 <h3 align="left">Connect with me:</h3>
 <p> rabis.varol54@gmail.com</p>
 
